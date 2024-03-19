@@ -1,1 +1,1 @@
-# my-cv
+https://Kz-Pr1d3.github.io/rsschool-cv/cv
